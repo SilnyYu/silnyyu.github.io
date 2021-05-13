@@ -1,1 +1,0 @@
-# silnyyu.github.io
