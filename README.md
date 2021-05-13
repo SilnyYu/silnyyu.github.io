@@ -1,2 +1,2 @@
 # silnyyu.github.io
-博客
+博客1.0
